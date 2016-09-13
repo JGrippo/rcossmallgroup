@@ -1,2 +1,2 @@
 # rcossmallgroup
-This is a repository for the test project
+Joe Iaquinto Edits out for Harambe
