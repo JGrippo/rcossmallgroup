@@ -1,2 +1,2 @@
 # rcossmallgroup
-Edits out for Harambe
+Joe Iaquinto Edits out for Harambe
